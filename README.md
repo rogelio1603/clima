@@ -1,4 +1,4 @@
 # Documentation
 
 
-Hey it's a my mari c:
+Hey it's a my mario
